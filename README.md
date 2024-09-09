@@ -1,0 +1,1 @@
+# Darwinmanuel25-Darwin-Manuel-Mamani-Ojopi-programacion2-2024g2-Auxiliatura
